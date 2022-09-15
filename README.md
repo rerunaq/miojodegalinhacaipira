@@ -1,1 +1,2 @@
 # miojodegalinhacaipira
+<strike>Re</strike>
